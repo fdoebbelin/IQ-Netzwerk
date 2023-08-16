@@ -1,0 +1,2 @@
+- Zusammenarbeit mit BA+JC (Struktur)
+- Begleitung der Anerkennung und Qualifizierung als Prozess

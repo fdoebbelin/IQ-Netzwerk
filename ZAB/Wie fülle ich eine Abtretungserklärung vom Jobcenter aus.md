@@ -1,0 +1,4 @@
+- Eine Abtretungserklärung vom Jobcenter müssen Sie selbst ausfüllen und an das Jobcenter zurückschicken.
+	- Warten Sie, bis Sie Ihren Gebührenbescheid von der ZAB erhalten haben.
+	- Tragen Sie die Kontoverbindung der ZAB in die Abtretungserklärung ein.
+	- Schicken Sie die unterschriebene Abtretungserklärung an Ihr Jobcenter.

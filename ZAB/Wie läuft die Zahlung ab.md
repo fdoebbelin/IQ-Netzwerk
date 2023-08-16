@@ -1,0 +1,6 @@
+- **Schritt 1**  
+	- Wenn das ZAB Ihren Antrag mit der Post erhalten haben, senden das ZAB Ihnen einen **Gebührenbescheid** per E-Mail. Darin stehen alle Informationen zur Zahlung: Höhe der Gebühr, Zahlungsfrist und Kontodaten der ZAB.
+- **Schritt 2**  
+	- Sie zahlen die Gebühr per **Überweisung** auf das Konto der ZAB. Eine Zahlung per Kreditkarte, PayPal etc. ist nicht möglich. Das ZAB braucht keinen Nachweis, dass Sie die Gebühr gezahlt haben.
+- **Schritt 3**  
+	- Nachdem die Gebühr auf dem Konto der ZAB eingegangen ist, sendet ZAB Ihnen eine **Zahlungsbestätigung** per E-Mail. Nun kann die Bearbeitung Ihres Antrags beginnen.

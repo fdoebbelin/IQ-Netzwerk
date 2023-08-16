@@ -1,0 +1,7 @@
+- First We need to add your custom module in to 
+	- Type drop down of PDF template module 
+	- This We can do it by going to Admin > Drop Down Editor, 
+	- We need to search for pdf_template_type_dom drop down list and add -> option Item name [ your custom directory name ] : 
+	- To find the proper name path, FTP into the SuiteCRM server and go to modules and use the exact name used on your module file Display label [ Whatever name you want ] 
+- Save it . 
+- After this We need Print as pdf option in our details view page of custom module - to add option in details view page open detailviewdefs.php we can find this file under /custom/modules//metadata/detailviewdefs.php we need to add option in to buttons array

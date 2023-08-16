@@ -1,0 +1,7 @@
+- Abgrenzung zum, IHK-BIZ
+- mit der Stadt Magdeburg klären
+	- IT-Bereich
+	- verwaltungstechnischer Bereich
+- wer ist die anerkennden Stelle
+- mit dem Jobcenter/Agentur für Arbeit klären ob es Interessenten gibt
+- 

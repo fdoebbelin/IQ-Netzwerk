@@ -1,0 +1,5 @@
+- Anpassung an andere Bedarfe
+- berufliche Umorientierung
+- nicht den Begriff Downgrading verwenden
+	- ?
+- 

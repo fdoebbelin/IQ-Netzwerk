@@ -1,0 +1,6 @@
+Der **Bachelor of Engineering** – kurz: **B. Eng.** oder **BEng**, in einigen Ländern auch **BE** – ist ein [akademischer Grad](https://de.wikipedia.org/wiki/Akademischer_Grad "Akademischer Grad"), der durch das [Bachelor](https://de.wikipedia.org/wiki/Bachelor "Bachelor")-Studium einer [Ingenieurwissenschaft](https://de.wikipedia.org/wiki/Ingenieurwissenschaften "Ingenieurwissenschaften") erlangt werden kann. 
+Es ist ein erster berufsqualifizierender Hochschulabschluss, der ebenso für ein [konsekutives](https://de.wikipedia.org/wiki/Konsekutiver_Studiengang "Konsekutiver Studiengang") [Master](https://de.wikipedia.org/wiki/Master "Master")-Studium berechtigt. 
+Das Diplom einer _Fachhochschule_ sowie das Diplom I einer [Gesamthochschule](https://de.wikipedia.org/wiki/Gesamthochschule "Gesamthochschule") sind akademisch mit dem Bachelor-Abschluss gleichgestellt.
+
+Der Grad Diplom-Ingenieur (Dipl. -Ing.) wird durch ein in der Regel fünf Jahre dauerndes Studium an einer Technischen Universität (früher Technische Hochschule) oder Universität erworben. 
+Das vierjährige Studium an einer Fachhochschule führt zum Diplom-Ingenieur (FH)

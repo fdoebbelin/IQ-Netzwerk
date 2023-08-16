@@ -1,0 +1,1 @@
+[SuiteCRM - Top Bar Menu Customization [2019] - YouTube](https://www.youtube.com/watch?v=dVaxfBfkt_U&list=PLIkiFUiHPeLC_aJHRomLQvSlY9f-IDw9u&index=8)
