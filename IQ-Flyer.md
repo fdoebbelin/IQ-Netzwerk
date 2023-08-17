@@ -1,15 +1,6 @@
 ## Angebote für Verwaltungsberufe
-01
-Beratung Anerkennung oder Quereinstieg
-
-02
-Feststellung fachlicher und sozialer Kompetenzen
-
-03
-Planung der Weiterbildung
-
-04
-Begleitung der Qualifizierung
-
-05
-Aufnahme eines Arbeitsverhältnisses
+1 Beratung Anerkennung oder Quereinstieg
+2 Feststellung fachlicher und sozialer Kompetenzen
+3 Planung der Weiterbildung
+4 Begleitung der Qualifizierung
+5 Aufnahme eines Arbeitsverhältnisses
