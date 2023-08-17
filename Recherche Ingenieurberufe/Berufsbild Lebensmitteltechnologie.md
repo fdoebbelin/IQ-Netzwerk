@@ -1,5 +1,5 @@
 ---
-source: [Ingenieur/in - Lebensmitteltechnologie - BERUFENET - Bundesagentur für Arbeit (arbeitsagentur.de)](https://web.arbeitsagentur.de/berufenet/beruf/58727)
+source: https://web.arbeitsagentur.de/berufenet/beruf/58727
 ---
 
 ## Aufgaben und Tätigkeiten kompakt
