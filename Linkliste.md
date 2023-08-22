@@ -10,3 +10,5 @@
 
 [IQ Netzwerk NRW: Sprachförderung (iq-netzwerk-nrw.de)](https://www.iq-netzwerk-nrw.de/medien/downloads/sprachfoerderung/)
 
+https://saaris.de/leistungen/fachkraefte-gewinnen-und-binden/servicestelle-kompetenzenmanagement/
+
