@@ -121,3 +121,290 @@ www.anerkennung-in-deutschland.de
 Hier finden Sie alle IQ Beratungsstellen. Die IQ Anpassungsqualifizierungen finden Sie unter:
 
 https://www.netzwerk-iq.de/foerderprogramm-iq/landesnetzwerke/karte
+
+## IQ Netzwerk Baden-Württemberg
+
+ www.netzwerk-iq-bw.de
+
+## IQ Netzwerk Bayern
+
+www.migranet.org
+
+## IQ Netzwerk Berlin
+
+www.berlin.netzwerk-iq.de
+
+### Nicht reglementierte akademische Berufe
+
+Wenn Sie einen ausländischen Hochschulabschluss haben und in einem nicht reglementierten Beruf wie z.B als Betriebswirt*in, Sprachwissenschaftler*in, Informatiker*in arbeiten wollen, der dem ausländischen Hochschulabschluss entspricht, kann eine Teilnahme an berufsfachlichen Zusatzqualifikationen - sog. Brückenqualifizierungen - förderlich sein. Für akademische Abschlüsse im nicht reglementierten Bereich kann keine Anerkennung beantragt werden. In diesem Fall entscheidet der/die Arbeitgeber*in , ob Ihre Qualifikation dafür reicht. Fachliche Zusatzqualifikationen können den/die zukünftige/n Arbeitgeber*in zusätzlich überzeugen und Ihre Chancen auf einen guten Arbeitsplatz erhöhen.
+
+Im IQ Landesnetzwerk Berlin werden folgende Zusatzqualifikationen angeboten:
+
+[http://projekt.bht-berlin.de/beuthbonus/](http://projekt.bht-berlin.de/beuthbonus/)
+
+ [www.life-online.de](http://www.life-online.de/)
+ [https://life-online.de/project/change/](https://life-online.de/project/change/)
+ 
+
+## IQ Netzwerk Brandenburg
+
+https://www.brandenburg.netzwerk-iq.de/startseite
+Oder haben Sie ein Hochschulstudium in einem nicht reglementierten Beruf im Ausland abgeschlossen? Dann können Sie an einer sogenannten Brückenmaßnahme teilnehmen und damit Ihre Chancen auf dem Arbeitsmarkt verbessern.
+
+
+## IQ Netzwerk Bremen
+
+https://iq-netzwerk-bremen.de
+
+### **Berufsanerkennung für Architekt*innen und Ingenieur*innen**
+
+Für die Anerkennung Ihres ausländischen Berufsabschlusses **als Architekt*in** müssen Sie zwei Jahre Berufserfahrung nachweisen und sich in die Liste der Architekt*innen der Architektenkammer Bremen eintragen lassen.
+
+Für die Anerkennung Ihres ausländischen Abschlusses **in einem Ingenieurberuf** stellen Sie einen Antrag auf Genehmigung zum Führen der Berufsbezeichnung „Ingenieur*in“ bei der Ingenieurkammer Bremen.
+
+## IQ Netzwerk Hamburg
+
+[hamburg.netzwerk-iq.de](https://hamburg.netzwerk-iq.de)
+
+## IQ Netzwerk Hessen
+
+www.inbas.com
+www.hessen.netzwerk-iq.de
+
+## IQ Netzwerk Mecklenburg-Vorpommern
+
+www.iq-mv.de
+
+### IQ Qualifizierung für den Beruf
+### IQ Individuelle Begleitung und Qualifizierung
+Wir qualifizieren einzelne Personen, die einen Berufs- oder Studienabschluss im Ausland gemacht haben. Das Angebot ist für Menschen bestimmt, die weitere Kompetenzen brauchen, um eine Stelle zu finden und für die es keine andere Qualifizierung im IQ Netzwerk Mecklenburg-Vorpommern gibt.
+
+Damit Sie an der Qualifizierung teilnehmen können, müssen Sie an einer [Anerkennungs- und Qualifizierungsberatung](https://www.iq-mv.de/beratung/anerkennungs-und-qualifizierungsberatung) des IQ Netzwerks Mecklenburg-Vorpommern teilgenommen haben. Sie müssen im Moment in Mecklenburg-Vorpommern wohnen.
+
+
+## IQ Netzwerk Niedersachsen
+
+www.migrationsportal.de
+
+### Anerkennung von Abschlüssen und Diplomen aus dem Ausland
+
+#### Beratung und Qualifizierung für Migrantinnen und Migranten
+
+Für viele Berufe braucht man in Deutschland eine Qualifikation. Daher ist es wichtig, ausländische Diplome und Zertifikate prüfen zu lassen. Diese Prüfung heißt Anerkennungsverfahren. Mit der [Anerkennung](https://www.migrationsportal.de/service/glossar/a/anerkennung-beruflich.html) Ihrer Qualifikation haben Sie eine bessere Chance, einen Job in Ihrem Beruf finden. Für einige Berufe ist die Anerkennung ein Muss, wenn Sie in Deutschland arbeiten möchten. 
+
+Das IQ Netzwerk unterstützt Sie bei der Anerkennung Ihres Abschlusses. Wir beraten und begleiten Sie während des gesamten Anerkennungsverfahrens. Wenn Ihre Qualifikation für eine Anerkennung nicht ausreicht, können Sie sich in unseren Kursen nachqualifizieren. Unsere Angebote sind kostenlos.
+
+### Volle Anerkennung mit einem Kurs mit IQ!
+
+Das IQ Netzwerk Niedersachsen bietet Kurse für Personen an, die ihren ausländischen Berufsabschluss in Deutschland anerkennen lassen möchten. Wessen Antrag auf Anerkennung nicht mit der vollen Gleichwertigkeit beschieden wurde, kann sich nachqualifizieren. Unsere Kurse sind staatlich gefördert und für Teilnehmende in der Regel kostenfrei.
+
+#### Qualifizierung von ausländischen Ingenieurinnen und Ingenieuren
+
+Virtuelle Beratung, Begleitung und Schulung
+
+Dieses Angebot richtet sich an ausländische Ingenieurinnen und Ingenieure aller Fachrichtungen. Sie müssen dafür zuerst einen Antrag auf [Anerkennung](https://www.migrationsportal.de/angebote/migrantinnen-migranten/berufliche-anerkennung.html) (Genehmigung der Berufsbezeichnung) bei der [Ingenieurkammer Niedersachsen](https://www.ingenieurkammer.de/das-koennen-wir-fuer-sie-tun/berufsbezeichnung-ingenieur-und-berufsanerkennung/abschluss-im-ausland "Weiterleiten") stellen. Danach unterstützen wir Sie dabei, einen passenden Job in Niedersachsen zu finden. Wir beraten Sie zum Bewerbungsverfahren und geben Ihnen wichtige Informationen zum Berufseinstieg in Deutschland. Außerdem bieten wir Schulungen zu u.a. folgenden Themen an:
+
+- Fachgesetze und Berufsnormen
+- Baurecht in Deutschland und andere rechtliche Themen (HOAI)
+- Baustellen (Organisation und Management)
+- Grundlagen des deutschen Arbeitsmarkts
+- Bewerbungstraining
+- Moderations- und Präsentationstechniken
+- Projektmanagement
+- Berufsbezogene Kommunikation (z.B. mit Kundinnen und Kunden)
+
+Zur Qualifizierung gehört auch ein Praktikum, die Initiierung von Patenmodellen sowie gemeinsame Exkursionen, Betriebsbesichtigungen und (Karriere-) Messen.
+
+Soweit fachlich/organisatorisch möglich, werden auch ausländische **Architektinnen und Architekten** in die Qualifizierung einbezogen.
+
+
+[Ingenieurkammer Niedersachsen - Ihr Partner für den Berufsstand: Abschluss im Ausland](https://www.ingenieurkammer.de/das-koennen-wir-fuer-sie-tun/berufsbezeichnung-ingenieur-und-berufsanerkennung/abschluss-im-ausland)
+#### Berufsabschlüsse im Ausland – Berufsanerkennung
+
+Sie haben einen Studienabschluss im Ausland erlangt? Oder anderweitige Bildungsabschlüsse im Ausland erreicht?
+
+Nach Genehmigung durch die Ingenieurkammer Niedersachsen können Sie die Berufsbezeichnung Ingenieurin oder Ingenieur führen!
+
+Die Ingenieurkammer Niedersachsen ist die zuständige Stelle für die Berufsbezeichnung, auch für den Fall, dass im Ausland Bildungsabschlüsse erworben wurden. Das Verfahren richtet sich nach §§ 6, 7- 9 Niedersächsisches Ingenieurgesetz (NIngG).
+
+Bei Studienabschlüssen im Ausland prüft die Ingenieurkammer, ob die Hochschulausbildung einem Abschluss in Deutschland, der zur Berufsbezeichnung führt, gleichwertig ist oder ob wesentliche Unterschiede bestehen. Sind die Voraussetzungen erfüllt, so erteilt die Ingenieurkammer Niedersachsen die Genehmigung, die dann auch bundesweit gilt.
+
+
+## IQ Netzwerk Nordrhein-Westfalen
+
+www.iq-netzwerk-nrw.de
+### Brückenmaßnahmen, Qualifizierungsbegleitung für Akademiker*innen
+
+29.08.–06.09.2023 | Dortmund/Online: Brückenmaßnahme für Ingenieur*innen: Karrieremessen effektiv nutzen | Träger: VDI Verein Deutscher Ingenieure e.V.
+
+13.09.2023–21.05.2024 | Köln: Soziale Arbeit und Kindheitspädagogik als Arbeitsmärkte der Zukunft für zugewanderte Akademiker*innen | Träger: Technische Hochschule Köln
+
+09/2023–01/2024 | Köln: Soziale Arbeit und Kindheitspädagogik als Arbeitsmärkte der Zukunft für zugewanderte Akademiker*innen | Träger: Technische Hochschule Köln
+
+23.10.–31.10.2023 | Köln/Online: Brückenmaßnahme für Ingenieur*innen: Karrieremessen effektiv nutzen | Träger: VDI Verein Deutscher Ingenieure e.V.
+
+
+## IQ Netzwerk Rheinland-Pfalz
+
+www.ism-mainz.de
+www.iq-rlp.de
+
+### Akademische Berufe
+
+**Am 31.12.2022 endete die Förderperiode des IQ Landesnetzwerks Rheinland-Pfalz. Zukünftig werden die Angebote in regionalen Integrationsnetzwerken fortgeführt. Das Online-Angebot wird entsprechend überarbeitet.** 
+
+#### Ingenieurwesen, Architektur, MINT-Berufe
+
+[Integrations- und Qualifizierungszentrum für MINT-Berufe (IQ-Z MINT)](https://www.iq-rlp.de/qualifizierung/akademische-berufe/ingenieurwesen-architektur-mint-berufe/integrations-und-qualifizierungszentrum-fuer-mint-berufe-iq-z-mint)
+
+Das Integrations- und Qualifizierungszentrum für MINT-Berufe (IQ-Z MINT) hat das Ziel, die Chancen von zugewanderten Fachkräften aus Mathematik, Informatik, Naturwissenschaften und Technik (MINT) auf dem deutschen Arbeitsmarkt zu verbessern.
+
+Angebot / Inhalte: 
+
+**I. Die Ingenieurwissenschaftlich Abschlussorientierte Qualifizierung (IAQ)** richtet sich an Akademikerinnen und Akademiker mit einem im Ausland erworbenen MINT-Hochschulabschluss.  
+Sie unterteilt sich in eine 6-monatige Hochschulphase und eine 6-monatige Praxisphase.
+
+An der Hochschule vertiefen die Teilnehmenden ihr Fachwissen. In Ingenieur-Projekten testen sie ihre Fähigkeiten und Fertigkeiten, lernen typische Arbeitsabläufe kennen, machen sich mit der Arbeitskultur in Deutschland vertraut und verbessern ihre fachsprachlichen Kenntnisse. Die Hochschule unterstützt bei der Suche nach einem Unternehmen für die anschließende sechsmonatige Praxisphase in der Wirtschaft.
+
+Zielgruppe IAQ:  
+Akademikerinnen und Akademiker mit einem im Ausland erworbenen MINT-Hochschulabschluss und Deutschkenntnissen auf gutem B1-Niveau.
+
+**II. Qualifizierungsbegleitung (QB):** Die fachlichen Kompetenzen, die zugewanderte MINT-Fachkräfte bereits mitbringen, sind auch in Deutschland Grundlage für den Einstieg in den Beruf. In der QB werden zusätzlich notwendige Qualifizierungsbedarfe ermittelt und Qualifikationsziele gemeinsam erarbeitet. Die Ratsuchenden werden in geeignete Qualifizierungsmaßnahmen oder „Trainings on the Job“ in Unternehmen begleitet.
+
+Zielgruppe QB:  
+Zugewanderte mit einer Qualifizierung im MINT-Bereich:
+
+- Hochschulabsolventinnen und -absolventen
+
+- Technikerinnen und Techniker
+
+- Handwerkerinnen und Handwerker
+
+- Facharbeiterinnen und Facharbeiter
+
+- Berufserfahrene im MINT-Bereich, auch ohne formalen Abschluss,
+
+mit Deutschkenntnissen auf gutem B1-Niveau
+
+
+## IQ Netzwerk Saarland
+
+[netzwerk-iq.saarland](https://netzwerk-iq.saarland)
+
+[Ingenieur*innen und Fachkräfte für neue industrielle Bereiche (netzwerk-iq.saarland)](https://www.netzwerk-iq.saarland/mein-weg-in-den-job/ingenieurinnen-und-fachkraefte-fuer-neue-industrielle-bereiche)
+
+Das Projekt richtet sich an Personen mit einem ausländischen Abschluss im Ingenieurswesen sowie dual ausgebildete Menschen ausländischer Herkunft. 
+
+In einem mehrstufigen Konzept wird zunächst eine Eignungsfeststellung durchgeführt, die fachliche, soziale und (fach-)sprachliche Kompetenzen beleuchtet und individuelle Entwicklungsfelder identifiziert. Danach wird eine modulare Struktur von Bildungsinhalten mit unterschiedlichen (erreichbaren) Leveln, durchlaufen, die eine individuell flexible und passgenaue Qualifizierung ermöglicht. Hier wird im Abgleich zwischen den Anforderungen zum formalen Abschluss und denen des sich transformierenden Marktumfeldes ein ganzheitliches Angebot geschaffen, das sich an den unterschiedlichen Anforderungsniveaus der Teilnehmenden orientiert. 
+
+Für formal nicht anerkannte Fachkräfte, deren Defizite zu groß sind, um zu einem formalen Abschluss zu gelangen, sollen die Module einen niedrigschwelligen Zugang zum Arbeitsmarkt schaffen. Das Besondere an dieser Qualifizierung ist, dass neben dem Ziel des „Erreichens der formalen Anerkennung“ auf spezifische Bedarfe in der sich regional stark transformierenden Wirtschaft eingegangen wird. Teilnehmende haben die Möglichkeit, sich genau in den Bereichen qualifizieren zu lassen, die der saarländische Arbeitsmarkt gerade braucht. Im Fokus stehen hier Zukunftsthemen wie Erneuerbare Energien, Wasserstoff und zukunftsträchtige Märkte.
+
+
+## IQ Netzwerk Sachsen
+
+www.netzwerk-iq-sachsen.de
+### Qualifizierung
+
+Im IQ Netzwerk Sachsen werden die Anerkennungs- und Qualifizierungsberatungen und die sich anschließende Qualifizierungen gefördert. Ziel dieser Qualifizierungen ist die volle Anerkennung der Abschlüsse und damit die langfristige Integration in den Arbeitsmarkt. Daher müssen sie direkt auf ein Anerkennungsverfahren aufbauen. Menschen mit einem im Ausland erworbenen Berufsabschluss im erwerbsfähigen Alter können also unterstützt werden.
+
+**Welche Schritte sind vorgesehen?**
+
+1. Beratung zur Anerkennung: Welches Verfahren und welche Stelle ist die richtige? Was kostet das? Welche Dokumente sind nötig? Wo kann finanzielle Unterstützung erhalten werden?  
+[> Anerkennung in Sachsen](https://www.netzwerk-iq-sachsen.de/annerkennung/)
+
+2. Beratung zur Qualifizierung, wenn eine Anerkennung oder Bewertung des Abschlusses vorliegt: Welche fachlichen und sprachlichen Qualifizierungen sind notwendig? Wo gibt es Maßnahmen oder Kurse? Welche Finanzierungsmöglichkeiten gibt es?  
+[> Anerkennung in Sachsen](https://www.netzwerk-iq-sachsen.de/annerkennung/)
+
+3. Durchführung von Anpassungsqualifizierungen, Brückenmaßnahmen und/oder Sprachcoachings in IQ-Maßnahmen oder externen Maßnahmen
+
+
+## IQ Netzwerk Schleswig-Holstein
+
+www.iq-netzwerk-sh.de
+### KOI - Kompetenz integrieren
+
+**Aufgaben**
+
+- - **Beratung und Unterstützung**  
+        - Unternehmen zu allen Aspekten migrantischer Fach- und Arbeitskräfte
+        - Migrant*innen bei der Arbeitssuche
+
+---
+
+**Angebot für Unternehmen**
+
+- - - Beratung zu allen Aspekten der Arbeitskräfteeinwanderung und des  
+            Fachkräfteeinwanderungsgesetzes (FEG)
+        - Erfassung von Personalbedarf
+        - Unterstützung bei der Suche und Auswahl geeigneter migrantischer Arbeitskräfte
+        - Unterstützung bei Praktika, Arbeitserprobungen, Nutzung von Fördermöglichkeiten, Weiterqualifizierungen und Eingliederungszuschüssen
+        - Begleitung im Onbboarding-Prozess
+        - Beratung zu allen Aspekten der Integration migrantischer Arbeitskräfte  
+              
+            
+
+**Angebot für Migrant*innen**
+
+In den Regionen:  
+Stadt Flensburg, Kreis Nordfriesland, Kreis Schleswig-Flensburg, Stadt Kiel, Kreis Plön,  
+Kreis Rendsburg-Eckernförde, Stadt Neumünster, Kreis Dithmarschen und Kreis Steinburg  
+  
+
+- - - Feststellung von Fähigkeiten zur Arbeitsaufnahme
+        - Darstellung eigener Kompetenzen in Bewerbungsunterlagen und Vorstellungsgesprächen
+        - Begleitung bei Bewerbungsinitiativen und Erarbeitung individueller Vorgehensweisen
+        - Unterstützung bei  
+            – Praktika  
+            – Arbeitserprobungen  
+            – Nutzung von Fördermöglichkeiten  
+            – Weiterqualifizierungen
+        - Unterstützung und Beratung auch nach der Arbeitsaufnahme  
+              
+            
+
+![](https://www.iq-netzwerk-sh.de/fileadmin/user_upload/BWHSH_PZ_RZ_ZW_Logo_4c_s.jpg "Logo "BWH-SH"")
+
+**Bildungswerk der Wirtschaft für Hamburg und Schleswig-Holstein e. V.  
+**Paradeplatz 9  
+24768 Rendsburg  
+  
+
+Ansprechpartner:
+
+Fachberatung  
+  
+Klaus Borcherding  
+Projektleitung  
+borcherding@bwh-sh.de  
+04331 1319-21  
+0151 42220403  
+  
+Sabine Kerstensteiner  
+kerstensteiner@bwh-sh.de  
+04331 1319-18  
+  
+Rüdiger Klanck  
+klanck@bwh-sh.de  
+04331 1319-22  
+0151 50540557  
+  
+Projektassistenz  
+  
+Silvia Schott  
+schott@bwh-sh.de  
+04331 1319-17
+
+Weitere Informationen zum Träger und Projekt finden Sie [HIER](https://bwh-sh.de/angebote-fuer-unternehmen/beratungsangebote-fuer-unternehmen/koi-kompetenz-integrieren-3/).
+
+
+## IQ Netzwerk Thüringen
+
+www.iq-thueringen.de
+
+### Qualifizierung im Bereich der MINT-Berufe
+Haben Sie einen Abschluss im naturwissenschaftlichen Bereich?
+Wir qualifizieren Sie für die Arbeit in Deutschland.
+
+Die Qualifizierungsmaßnahme “Brücke.ZUKUNFT” richtet sich an Akademiker*innen mit einem ausländischen naturwissenschaftlichen Hochschulabschluss, die sich im Bereich Umwelt, Infrastruktur und Ressourcenmanagement weiterbilden möchten.
+
+Zukünftig steigt, aufgrund zunehmender Klimarelevanz in allen Bereichen des Lebens, der Wirtschaft und Industrie, der Bedarf an Ingenieur*innen im Bereich Umwelt, Infrastruktur und Ressourcenökonomie. Daher ist die Qualifizierungsmaßnahme „Brücke.ZUKUNFT“ ein wesentlicher Baustein zur Fachkräftesicherung im Bereich Umweltingenieurwesen/Umweltwirtschaft.
