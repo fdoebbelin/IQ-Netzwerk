@@ -7,6 +7,6 @@ Prinzipiell bestehen auch andere Transfermöglichkeiten für IQ Qualifizierungsp
 Von den 54 verstetigten Angeboten sind fast zwei Drittel dem Gesundheitsbereich zuzuordnen. Sieben Angebote wurden aus dem Bereich des dualen Systems, sechs Angebote aus dem sozialen/pädagogischen Bereich transferiert, weitere sechs beziehen sich auf diverse nicht reglementierte akademische Berufe. Nicht zuordenbar, da für verschiedene Berufe zugänglich, ist eines der verstetigten Qualifizierungsprojekte.
 
 
-![[Pasted image 20231020084107.png]]
+![](_resources/Pasted%20image%2020231020084107.png)
 
 Weiterhin werden von den insg. 97 Qualifizierungen gut ein Drittel (35 Angebote) virtuell oder als Blended Learning durchgeführt. Davon haben sechs Angebote mit einem Transfer begonnen, 15 Angebote den Transfer bereits abgeschlossen. Im Vergleich der Qualifizierungsformen Präsenz, Blended Learning und online konnten trotz der langanhaltenden pandemischen Lage bisher am häufigsten Präsenzangebote verstetigt werden. Das könnte sich in Zukunft ändern: In der IQ Förderrunde 2023-2025 sind laut Förderrichtlinie virtuelle bundeslandübergreifende Qualifizierungen vorgesehen – Träger solcher Maßnahmen sollen bereits eine AZAV-Zertifizierung vorhalten. Dies ist eine wichtige Voraussetzung, um auch die Qualifizierung zeitnah verstetigen zu können.
